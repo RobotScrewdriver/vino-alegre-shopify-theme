@@ -1,0 +1,1 @@
+# vino-alegre-shopify-theme
